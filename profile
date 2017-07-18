@@ -13,7 +13,7 @@ Don't forget to add the link to your private post!  Also, how about we start a l
 
 Please feel free to repost this entire entry in your own journals!
 
-<center><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Friends%20Only/7-1.png" alt="LUNA LOVEGOOD"><center><table width="445px" cellpadding="0" cellspacing="10" border="0"><tr align="center"><td width="110px" valign="middle" align="center"><div style="display: profile layout created by Zazaone for Profile_layout http://community.livejournal.com/profile_layout/ 17 July 2008 "></div><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Icons/Harry%20Potter%20icons/HBP_harry1.png"></td><td width="5px" bgcolor="#cacaca"></td><td width="270px" align="justify" valign="middle"><font face="Lucida Console" size="5" color="#FF0000">0</font><font face="Times New Roman" size="4" color="#FFDF00"><b>1</b></font><font face="Comic Sans MS" size="5" color="#2e2e2e"><b>.</b></font><br/><font face="Tahoma" size="1" color="#FF0000">"</font><font face="Tahoma" size="1" color="#cacaca">
+<center><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Friends%20Only/1B.png" alt="DER FÜHRER, MADAME UNDERPSYCHO, DOLORES UMBRIDGE..."><center><table width="445px" cellpadding="0" cellspacing="10" border="0"><tr align="center"><td width="110px" valign="middle" align="center"><div style="display: profile layout created by Zazaone for Profile_layout http://community.livejournal.com/profile_layout/ 17 July 2008 "></div><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Icons/Harry%20Potter%20icons/HBP_harry1.png"></td><td width="5px" bgcolor="#cacaca"></td><td width="270px" align="justify" valign="middle"><font face="Lucida Console" size="5" color="#FF0000">0</font><font face="Times New Roman" size="4" color="#FFDF00"><b>1</b></font><font face="Comic Sans MS" size="5" color="#2e2e2e"><b>.</b></font><br/><font face="Tahoma" size="1" color="#FF0000">"</font><font face="Tahoma" size="1" color="#cacaca">
 </font><font face="Tahoma" size="1" color="#FF0000">.</font><font face="Tahoma" size="1" color="#999966">“NO MASTERPIECE WAS EVER CREATED BY A LAZY ARTIST.” – SALVADOR DALI
 
 "TO BE YOURSELF IN A WORLD THAT IS CONSTANTLY TRYING TO MAKE YOU SOMETHING ELSE IS THE GREATEST ACCOMPLISHMENT." - RALPH WALDO EMERSON 
@@ -40,7 +40,7 @@ Please feel free to repost this entire entry in your own journals!
 "A WOMAN IS LIKE A TEA BAG - YOU CAN'T TELL HOW STRONG SHE IS UNTIL YOU PUT HER IN HOT WATER." - ELEANOR ROOSEVELT + <a href="http://angelfirenze.livejournal.com/45559.html#cutid3" target="_blank"><font face="Tahoma" size="1" color="#999966">
 <u>OBSESSIONS</u></font></a> +</font></td></tr><tr align="center"><td width="110px" valign="middle" align="center"><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Icons/Harry%20Potter%20icons/HBP_hermione3.png"></td><td width="5px" bgcolor="#6d6d6d"></td><td width="270px" valign="middle" align="justify"><font face="Lucida Console" size="5" color="#FFDF00">0</font><font face="Times New Roman" size="4" color="#6d6d6d">2</font><font face="Comic Sans MS" size="5" color="#2e2e2e"><b>.</b></font><br/><font face="Tahoma" size="1" color="#FF0000">C</font><font face="Tahoma" size="1" color="#999966">REDIT WHERE IT'S DUE:
 HEADER: <lj user="phuck">
-FRIENDS ONLY BANNER: <lj comm="phuck" /<lj="/&lt;lj" comm="phuck">
+FRIENDS ONLY BANNER: <lj comm="phuck" <lj="&lt;lj" comm="phuck" />
 HOGWARTS SCARF BANNERS: <lj user="celtic_cherokee"> at <lj comm="citadel_icons">
 LAYOUT: <lj user="tiffany_chow">
 MOOD THEME: <lj comm="crackified">
@@ -48,6 +48,12 @@ SIDEBAR ICONS: Various facets of <a href="http://thefanlistings.org/"><img src="
 <center><b><u>THIS JOURNAL IS HENCEFORTH MUTUAL FRIENDS ONLY; ENTER AT YOUR OWN DISCRETION.</u></b></center>
 
 DON'T <b><a href="http://angelfirenze.livejournal.com/102735.html" target="_blank">COMMENT</a></b>, YOU DON'T GET FRIENDED.  SIMPLE.</font><font face="Tahoma" size="1" color="#FF0000">.</font><font face="Tahoma" size="1" color="#999966"> + <a href="http://angelfirenze.livejournal.com/309754.html" target="_blank"><font face="Tahoma" size="1" color="#999966"><u>READING LIST</u></font></a> +</font></td></tr><tr align="center"><td width="200" valign="middle" align="center"><font size="1" color="#6D6D6D" face="Arial">icons and codes by <a href="http://zazaone.livejournal.com/" target="_blank"><font size="1" color="#6D6D6D" face="Arial"><u>Zazaone</u></font></a></font></td><td width="5px" bgcolor="#FFDF00"></td><td width="400px" valign="middle" align="center"><u><font face="Tahoma" size="1" color="#FF0000"><a href="https://about.me/angelfirenze" target="_blank">About.me</u></font></a> + <u><a href="fxanfiction.net/u/45829/" target="_blank"><font face="Tahoma" size="1" color="#FF0000">Fanfiction.net</font><a></u> + <a href="https://github.com/Angelfirenze01" target="_blank"><font face="Tahoma" size="1" color="#FF0000"><u>Github</u></font></a> + <a href="http://www.last.fm/user/Angelfirenze" target="_blank"><font face="Tahoma" size="1" color="#FF0000"><u>Last.fm</u></font></a> + <a href="http://smg.photobucket.com/user/Angelfirenze/library/" target="_blank"><font face="Tahoma" size="1" color="#FF0000"><u>Photobucket</u></font></a> + <a href="http://stackexchange.com/users/2384223/angelfirenze" target="_blank"><font face="Tahoma" size="1" color="#FF0000"><u>StackExchange</u></font></a></td></tr></table>
+
+<img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Colorbars/angelfirenzeCB1B-1.png">
+
+<img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Colorbars/angelfirenzeCB2-4.png">
+
+<lj user="gahdzuks"> made these for me several years ago, before universal marriage and I'm forever bringing them back out of retirement...
 
 <center><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/antitxtbanner.gif">
 Banner by <lj user="spunky_penguin"></center>
