@@ -1,20 +1,18 @@
-<b><i>I want to be seen as worth knowing both on the internet and in the world.</i></b>
+<center><b><i>I want to be seen as worth knowing both on the internet and in the world.</i></b><br><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Friends%20Only/1B.png" alt="DER FÜHRER, MADAME UNDERPSYCHO, DOLORES UMBRIDGE..."><center><table width="445px" cellpadding="0" cellspacing="10" border="0"><tr align="center"><td width="110px" valign="middle" align="center"><div style="display: profile layout created by Zazaone for Profile_layout http://community.livejournal.com/profile_layout/ 17 July 2008 "></div><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Icons/Harry%20Potter%20icons/HBP_harry1.png"></td><td width="5px" bgcolor="#cacaca"></td><td width="270px" align="justify" valign="middle"><font face="Lucida Console" size="5" color="#FF0000">0</font><font face="Times New Roman" size="4" color="#FFDF00"><b>1</b></font><font face="Comic Sans MS" size="5" color="#2e2e2e"><b>.</b></font><br/><font face="Tahoma" size="1" color="#FF0000">"</font><font face="Tahoma" size="1" color="#cacaca">
+</font><font face="Tahoma" size="1" color="#FF0000">.</font><font face="Tahoma" size="1" color="#999966"><b>LJ ABUSE FIRST POST PROGRAM</b>
 
-<b>LJ Abuse First Post Program</b>
+I PARTICIPATE IN THE LJ ABUSE EMERGENCY CONTACT INFORMATION FIRST POST PROGRAM:
 
-I participate in LJ ABUSE EMERGENCY CONTACT INFORMATION FIRST POST:
-
-Save your life or a friend's!  Here's how:   Post your real world contact info in a private post, with the subject: "Emergency" so LJ Admins can get you help in an emergency!  I did :-)  (My private post is http://angelfirenze.livejournal.com/558242.html)
+SAVE YOUR LIFE OR THAT OF A FRIEND'S!  HERE'S HOW:   POST YOUR REAL WORLD CONTACT INFO IN A PRIVATE POST, WITH THE SUBJECT: "EMERGENCY" SO LJ ADMINS CAN GET YOU HELP IN AN EMERGENCY!  I DID! :-)  (MY PRIVATE POST IS http://angelfirenze.livejournal.com/558242.html).
 
 IN CASE OF AN EMERGENCY:
 http://www.livejournal.com/abuse/report.bml
 
-Don't forget to add the link to your private post!  Also, how about we start a list of all those private links, right here at <lj comm="crisis_911">  ?!!  So, after you've made your PRIVATE info post, send in your link and I'll start the list going.  (No one can access those links, except LJ Admins in an emergency.  If you want, you could also specify what kind of emergencies or situations would be necessary before LJ can access your private post).- <lj user="madman101">
+DON'T FORGET TO ADD THE LINK TO YOUR PRIVATE POST!  ALSO, HOW ABOUT WE START A LIFE OF ALL THOSE PRIVATE LINKS, RIGHT HERE AT <lj comm="crisis_911">  ?!!  SO, AFTER YOU'VE MADE YOUR <u>PRIVATE</u> INFO POST, SEND IN YOUR LINK AND I'LL START THE LIST GOING.  (NO ONE CAN ACCESS THOSE LINKS, EXCEPT LJ ADMINS IN AN EMERGENCY.  IF YOU WANT, YOU COULD ALSO SPECIFY WHAT KIND OF EMERGENCIES OR SITUATIONS WOULD BE NECESSARY BEFORE LJ CAN ACCESS YOUR PRIVATE POST).- <lj user="madman101">
 
-Please feel free to repost this entire entry in your own journals!
+PLEASE FEEL FREE TO REPOST THIS ENTIRE ENTRY IN YOUR OWN JOURNALS!
 
-<center><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Friends%20Only/1B.png" alt="DER FÜHRER, MADAME UNDERPSYCHO, DOLORES UMBRIDGE..."><center><table width="445px" cellpadding="0" cellspacing="10" border="0"><tr align="center"><td width="110px" valign="middle" align="center"><div style="display: profile layout created by Zazaone for Profile_layout http://community.livejournal.com/profile_layout/ 17 July 2008 "></div><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Icons/Harry%20Potter%20icons/HBP_harry1.png"></td><td width="5px" bgcolor="#cacaca"></td><td width="270px" align="justify" valign="middle"><font face="Lucida Console" size="5" color="#FF0000">0</font><font face="Times New Roman" size="4" color="#FFDF00"><b>1</b></font><font face="Comic Sans MS" size="5" color="#2e2e2e"><b>.</b></font><br/><font face="Tahoma" size="1" color="#FF0000">"</font><font face="Tahoma" size="1" color="#cacaca">
-</font><font face="Tahoma" size="1" color="#FF0000">.</font><font face="Tahoma" size="1" color="#999966">“NO MASTERPIECE WAS EVER CREATED BY A LAZY ARTIST.” – SALVADOR DALI
+“NO MASTERPIECE WAS EVER CREATED BY A LAZY ARTIST.” – SALVADOR DALI
 
 "TO BE YOURSELF IN A WORLD THAT IS CONSTANTLY TRYING TO MAKE YOU SOMETHING ELSE IS THE GREATEST ACCOMPLISHMENT." - RALPH WALDO EMERSON 
 
