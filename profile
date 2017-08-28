@@ -35,7 +35,9 @@ PLEASE FEEL FREE TO REPOST THIS ENTIRE ENTRY IN YOUR OWN JOURNALS!
 “IF YOU ARE NOT WILLING TO RISK THE UNUSUAL, YOU WILL HAVE TO SETTLE FOR THE ORDINARY.”
 – JAMES 'JIM' ROHN 
 
-"A WOMAN IS LIKE A TEA BAG - YOU CAN'T TELL HOW STRONG SHE IS UNTIL YOU PUT HER IN HOT WATER." - ELEANOR ROOSEVELT + <a href="http://angelfirenze.livejournal.com/45559.html#cutid3" target="_blank"><font face="Tahoma" size="1" color="#999966">
+"A WOMAN IS LIKE A TEA BAG - YOU CAN'T TELL HOW STRONG SHE IS UNTIL YOU PUT HER IN HOT WATER." - ELEANOR ROOSEVELT
+
+"THE HUMAN BODY IS A TRUE CARNIVAL OF HORRORS AND, FRANKLY, I'M EMBARRASSED TO HAVE ONE." - JOHN OLIVER + <a href="http://angelfirenze.livejournal.com/45559.html#cutid3" target="_blank"><font face="Tahoma" size="1" color="#999966">
 <u>OBSESSIONS</u></font></a> +</font></td></tr><tr align="center"><td width="110px" valign="middle" align="center"><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Icons/Harry%20Potter%20icons/HBP_hermione3.png"></td><td width="5px" bgcolor="#6d6d6d"></td><td width="270px" valign="middle" align="justify"><font face="Lucida Console" size="5" color="#FFDF00">0</font><font face="Times New Roman" size="4" color="#6d6d6d">2</font><font face="Comic Sans MS" size="5" color="#2e2e2e"><b>.</b></font><br/><font face="Tahoma" size="1" color="#FF0000">C</font><font face="Tahoma" size="1" color="#999966">REDIT WHERE IT'S DUE:
 HEADER: <lj user="phuck">
 FRIENDS ONLY BANNER: <lj comm="phuck" <lj="&lt;lj" comm="phuck" />
@@ -51,7 +53,7 @@ DON'T <b><a href="http://angelfirenze.livejournal.com/102735.html" target="_blan
 
 <img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/Colorbars/angelfirenzeCB2-4.png">
 
-<lj user="gahdzuks"> made these for me several years ago, before universal marriage and I'm forever bringing them back out of retirement...
+<lj user="gahdzuks"> made these for me several years ago, before universal marriage, and I'm forever bringing them back out of retirement...
 
 <center><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/antitxtbanner.gif">
 Banner by <lj user="spunky_penguin"></center>
