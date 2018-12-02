@@ -58,6 +58,9 @@ DON'T <b><a href="http://angelfirenze.livejournal.com/102735.html" target="_blan
 
 <lj user="gahdzuks"> made these for me several years ago, before universal marriage, and I'm forever bringing them back out of retirement...
 
+<img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/AngelfirenzeBannerfromRintin.png">
+Made for me by Rintin quite a long while ago.  I think I was a freshman in high school...
+
 <center><img src="http://img.photobucket.com/albums/v204/Angelfirenze/Not%20My%20Banners/antitxtbanner.gif">
 Banner by <lj user="spunky_penguin">
 
